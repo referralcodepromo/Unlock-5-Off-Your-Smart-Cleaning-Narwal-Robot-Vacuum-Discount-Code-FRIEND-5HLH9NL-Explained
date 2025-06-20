@@ -3,6 +3,7 @@
 ## Save on Smarter Cleaning with Narwal Robot Vacuums
 
 Robot vacuums are no longer a luxury — they’re a must-have for anyone looking to save time, keep their home clean, and embrace smart technology. If you’ve been eyeing the award-winning **Narwal robot vacuum**, here’s your chance to save. Use the exclusive **Narwal discount code `FRIEND-5HLH9NL`** and get **$5 off any order**!
+### If the current discount code is expired, you can request a new one by accessing this link https://narwalrobotics.refr.cc/referral-program/u/rolleer?s=esp&t=cp
 
 ## Why Choose Narwal?
 
@@ -22,7 +23,7 @@ Applying the discount is fast and easy. Follow these steps to get **$5 off any N
 
 ### ✅ Step-by-Step Instructions:
 
-1. Visit the official [Narwal website](https://www.narwal.com)  
+1. Visit the official [Narwal website](https://narwalrobotics.refr.cc/referral-program/u/rolleer?s=esp&t=cp)  
 2. Add your preferred product to the cart (vacuum, accessories, bundles, etc.)  
 3. Go to checkout  
 4. Enter this code in the **“Referral Code”** or **“Discount Code”** box: FRIEND-5HLH9NL
